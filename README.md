@@ -1,7 +1,7 @@
 # Information
 ### I code stuff.
 # Connections
- - Twitter: [@_joe](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
+ - Twitter: [@joegaming68](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
  - YouTube: [Ur mom YT](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
  - Instagram: [@turkpro68](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 # Stats
